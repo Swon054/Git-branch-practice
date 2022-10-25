@@ -17,7 +17,7 @@
 
 👤 **서 상 원**
 
-* Github: [@Violet-Bora-Lee](https://github.com/Swon054)
+* Github: [@Swon054](https://github.com/Swon054)
 
 ## Show your support
 
